@@ -1,2 +1,0 @@
-# RHEMAATUA
-Community-based Organization
